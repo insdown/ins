@@ -7,3 +7,8 @@
 4|[电脑`Mac`设备使用教程-点我](https://github.com/insdown/ins/wiki/mac%E8%AE%BE%E5%A4%87%E4%BD%BF%E7%94%A8%E6%95%99%E7%A8%8B)
 
 更多技巧资料 免费ssr节点> https://github.com/insdown/ins/wiki
+
+更多技巧资料 免费ssr节点> https://github.com/insdown/ins/wiki
+
+更多技巧资料 免费ssr节点> https://github.com/insdown/ins/wiki
+
